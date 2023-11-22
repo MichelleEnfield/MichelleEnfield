@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MichelleEnfield
 - 👀 I’m interested in yoga
-- 🌱 I’m currently learning Ayerveda 
+- 🌱 I’m currently learning Ayurveda 
 - 💞️ I’m looking to collaborate on Automated Products
 - 📫 How to reach me michelle.enfield@weathergroup.com
 
